@@ -1,4 +1,4 @@
-
+best Canva for macOS Utility | text-animation + color-correction is the best Canva for macOS utility, featuring text-animation and color-correction. Powerful, efficient, and
 
 
 
